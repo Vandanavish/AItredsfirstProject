@@ -1,1 +1,1 @@
-# AItredsfirstProject
+# AItrendsfirstProject
